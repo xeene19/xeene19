@@ -1,5 +1,5 @@
 Standing here,
-I realze .
+I realize .
 You are just like me trying to make history
 But whose to judge, the right from wrong 
 When our guard is down I think we'll both agree.
